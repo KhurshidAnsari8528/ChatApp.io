@@ -4,7 +4,7 @@
 
 ---
 
-### Made with ❤️ by [Md Samar Alam]
+### Made with ❤️ by khurshid Ansari
 
 ---
 
